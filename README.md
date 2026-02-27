@@ -1,1 +1,1 @@
-# 3d-modeling-practice
+# Me vs AI
